@@ -1,2 +1,3 @@
 # my-self
-my self idiot
+my self honor
+danger
